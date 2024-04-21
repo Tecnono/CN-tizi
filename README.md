@@ -7,7 +7,7 @@
 
 ![梯子推荐.jpg](https://s2.loli.net/2023/10/21/wD19i7RaPxFENsp.jpg)
 
-### [**FJcloud**](https://go.51tz.cc/fjcloud) 梯子很好的满足了我的需求，也是我这两年唯一长期持续使用的翻墙梯子。
+### [**FJcloud**](https://go.51tz.cc/fjcloud) 梯子很好的满足了我的需求，也是我这两年唯一长期持续使用的翻墙梯子VPN。
 
 [**点击直达官网**](https://go.51tz.cc/fjcloud)
 
